@@ -1,4 +1,2 @@
 # Todo
-# test
-# test
-# todo
+萩生田発の巨大イベント
